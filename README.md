@@ -6,3 +6,4 @@
 課題３
 こんにちはdcddecdeefeevfef
 こんにちは2525
+こんにちは！
